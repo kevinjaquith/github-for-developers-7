@@ -1,0 +1,1 @@
+My name is Kevin jaquith and I live in Boston. I enjoy running when the weather is nice. If you were to ask me what my favorite food is, I'd promptly reply "chicken salad." I love working in Boston and getting to walk through Boston Common every day on my way to work. My favorite color is green! 
